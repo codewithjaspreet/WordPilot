@@ -1,0 +1,1 @@
+Create a blog plan with 5-7 sections on the following topic.
